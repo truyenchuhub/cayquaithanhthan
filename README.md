@@ -19,5 +19,5 @@ Tất cả mọi người xem hoang nguyên vì cấm khu, lo lắng hãi hùng,
 
 Link truyện:
 
-[Cày Quái Thành Thần](https://tutruyenchu.com/truyen/Toan-Cau-Cao-Vo-Cay-Quai-Thanh-Than-Ta-danh-Xuyen-Qua-Nhan-Loai-Cam-Khu)
+[Cày Quái Thành Thần](https://truyenchuhub.org/truyen/Toan-Cau-Cao-Vo-Cay-Quai-Thanh-Than-Ta-danh-Xuyen-Qua-Nhan-Loai-Cam-Khu)
 </div>
